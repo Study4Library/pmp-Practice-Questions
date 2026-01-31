@@ -1,3 +1,3 @@
 # PMP-Practice-Questions
-For practice tests that feel close to the actual pmp exam, try [Certifiedumps]. Many candidates use it to sharpen their prep before exam day. 
+I passed my exam and I’m so happy! After using several platforms, I found Certifiedumps the most reliable. Their questions were up-to-date and realistic. 
 https://www.certifiedumps.com/pmi/pmp-dumps.html
